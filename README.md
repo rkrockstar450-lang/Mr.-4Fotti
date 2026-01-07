@@ -1,2 +1,2 @@
-# Mr.-4Fotti
+# Mr.-Ashiq
 Hi I'm rock star
